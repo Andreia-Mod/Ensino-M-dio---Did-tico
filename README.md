@@ -1,1 +1,1 @@
-# Ensino-M-dio---Did-tico
+# EnsinoMedioDidatico
